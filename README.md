@@ -1,2 +1,2 @@
-# Forgotten-Time-Minecraft-Server
+# Forgotten-Time-Minecraft-Server Website
 Website - Forgotten Time Minecraft Servers Project
